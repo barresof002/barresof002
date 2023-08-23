@@ -1,5 +1,6 @@
 ### Hi there 👋, Sofia
 #### IB Computer Science YR 1 SL
+First Year Computer Science student who really enjoys sitcom TV
 
 Skills: learning them!
 
