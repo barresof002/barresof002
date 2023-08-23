@@ -1,4 +1,4 @@
-### Hi there 👋, Sofia
+### Hi there 👋, I'm Sofia
 #### IB Computer Science YR 1 SL
 First Year Computer Science student who really enjoys sitcom TV
 
